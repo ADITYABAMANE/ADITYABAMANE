@@ -1,4 +1,4 @@
-<img align="center" alt="Coding" width="900" src="https://webcloudtechnology.in/wp-content/uploads/2022/07/Web-Designing-Banner.gif">
+<img align="center" alt="Coding" width="900" src="https://myweb2002.w3spaces.com/New-PNC-Animated-Banners.gif">
 
 
 
