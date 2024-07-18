@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **adityabamane05@gmail.com**
 
-- ⚡ Fun fact **I am Funny**
+- ⚡ Fun fact :**Innovating with passion, solving with precision.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
