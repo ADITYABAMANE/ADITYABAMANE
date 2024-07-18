@@ -6,7 +6,7 @@
 
 💞️ I want to collaborate on open-source projects, especially those involving Python, React, and data science.
 
-📫 How to reach me: You can contact me via email at adityabamane@example.com or connect with me on LinkedIn at Aditya Bamane.
+📫 How to reach me: You can contact me via email at adityabamane05@gmail.com or connect with me on LinkedIn at https://www.linkedin.com/in/aditya-bamane-73863922b/.
 
 😄 Pronouns: He/Him
 
