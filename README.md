@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **adityabamane05@gmail.com**
 
-- ⚡ Fun fact :**Innovating with passion, solving with precision.**
+- ⚡ Coding my way through life, one semicolon at a time.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
